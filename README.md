@@ -1,1 +1,1 @@
-it works best if you download the zip 
+yo currently this game site is in alpha alpha alpha version 
